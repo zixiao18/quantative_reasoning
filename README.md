@@ -1,4 +1,6 @@
-#### Quiz Oct 28
+## Recitation on Oct 21
+
+#### Quiz on Oct 28
 
 Time: 11.05 - 11.35 a.m. / 12.05 - 12.35 p.m.
 
